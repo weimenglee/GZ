@@ -1,2 +1,0 @@
-# GZ
-Materials
